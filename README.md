@@ -59,10 +59,12 @@ Dark, more dark than the void of outer space...
 Okay, maybe not so black.
 
     --- WHAT AM I DOING? ---
-    A very good question, right now, as I'm finishing my studies, I'm looking to start working almost immediately after finishing my studies, 
-    and, after that, don't really know...
+    A very good question, right now, as I'm finishing my studies, I'm looking to start working almost immediately after
+    finishing my studies, and, after that, don't really know...
 
-    I've thought about going through other studies, but still, it's a future a little too far away for me to plan something right now, so, for the time being, I'm happy with getting a job after the studies (and the money, the oh so useful money).
+    I've thought about going through other studies, but still, it's a future a little too far away for me to plan 
+    something right now, so, for the time being, I'm happy with getting a job after the studies 
+    (and the money, the oh so useful money).
     
 And that's about it, if you wish to contact me, you can always send an email or go through the links on my profile.
 
