@@ -54,9 +54,9 @@ Encountering myself at the end of my student life, I've had a more or less strai
 
 🌈 My Future 🌈
 
-Dark, more dark than the void of outer space...
+Dark, darker than the void of outer space...
 
-Okay, maybe not so black.
+Okay, maybe not so dark.
 
     --- WHAT AM I DOING? ---
     A very good question, right now, as I'm finishing my studies, I'm looking to start working almost immediately after
