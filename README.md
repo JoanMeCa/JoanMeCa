@@ -52,6 +52,8 @@ Encountering myself at the end of my student life, I've had a more or less strai
     * FP SMR --- Sant Josep Obrer
     * FP AMD --- CIDE
 
+🌈 My Future 🌈
+
 And that's about it, if you wish to contact me, you can always send an email or go through the links on my profile.
 
 See ya!
