@@ -3,6 +3,7 @@ I'm Joan Menéndez Calafell, but you knew that already didn't you?
 Well then, allow me to introduce myself nonetheless...
 
 🧠 My knowledge 🧠
+
 I've worked with multiple engines and languages, such as:
 
     --- ENGINES ---
