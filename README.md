@@ -16,6 +16,7 @@ Before going into my life and such, you should know a thing or two about me...
     * Able to speak spanish and english, with the same rate of error as an english man.
     * Introvert, what a surprise, but not enough to not talk to anyone.
     * Broken humor, with no chance of repair.
+    * Has a beard.
 
 🧠 My knowledge 🧠
 
