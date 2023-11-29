@@ -51,29 +51,6 @@ Encountering myself at the end of my student life, I've had a more or less strai
     * FP SMR --- Sant Josep Obrer
     * FP AMD --- CIDE
 
-🤝 Let's Connect
-LinkedIn: Your LinkedIn Profile
-Twitter: @YourTwitterHandle
-📫 How to Reach Me
-Feel free to reach out if you have any questions or just want to connect!
+And that's about it, if you wish to contact me, you can always send an email or go through the links on my profile.
 
-Email: Your Email
-Website: Your Personal Website
-⚡ Fun Fact
-[Share an interesting or fun fact about yourself]
-
-Thanks for stopping by! 😊
-<!--
-**JoanMeCa/JoanMeCa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+See ya!
